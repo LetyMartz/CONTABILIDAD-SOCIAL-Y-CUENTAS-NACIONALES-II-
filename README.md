@@ -1,0 +1,2 @@
+# CONTABILIDAD-SOCIAL-Y-CUENTAS-NACIONALES-II-
+Conocer los fundamentos teóricos y metodológicos de los procesos de la Contabilidad Social y las Cuentas Nacionales, referentes al modelo de insumo producto y al manejo de su matriz; a la balanza de pagos y las relaciones económicas con el resto del mundo; a la estructura y componentes de la deuda pública; y al manejo de los principales censos y encuestas, para aplicarlos en su trabajo profesional y académico. 
